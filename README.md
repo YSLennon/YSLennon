@@ -4,6 +4,7 @@
 I am Yuseong Ha who is interested in Android from South Korea.<br>
 If you want to contact me, please leave me a message!
 
+[" My Profile Link "](https://bald-wave-5ae.notion.site/Yuseong-Ha-134c8da93de980afb884c7ad0d379b5d)
 
 ## 🚀 I'm interested in
 
